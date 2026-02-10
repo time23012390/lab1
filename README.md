@@ -21,7 +21,7 @@ N. Calin, asistent universitar</p>
 
 <br><br>
 
-<p>Кишинёв, 2025</p>
+<p>Кишинёв, 2026</p>
 
 </div>
 
